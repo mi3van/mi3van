@@ -1,1 +1,1 @@
-Greetings! Me too.
+Greetings!
